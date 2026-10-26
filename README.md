@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @davorornik
-- ✨ And that is pretty much it.
